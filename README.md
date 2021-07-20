@@ -5,4 +5,7 @@
 [Quick Draw](https://quickdraw.withgoogle.com/?locale=ko)
 
 
-https://beta.easydeep.ai/join?code=5Mt28nQN4Mx5W1ZyYLwjONO0Ryu46MQDbhuiW7kG&next=/
+
+
+
+[설문조사](https://forms.gle/F2NTRk2x1NjFBpPH6)
